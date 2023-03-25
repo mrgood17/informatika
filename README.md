@@ -1,0 +1,2 @@
+# informatika
+Mari belajar Informatika
